@@ -1,6 +1,10 @@
 i love tobias stirling
 
 
+other name you can use on me is x (preferred as of now) or four
+
+
+
 
 
 if im offline a lot its school
